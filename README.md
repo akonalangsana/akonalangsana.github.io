@@ -5,4 +5,4 @@
 
 **How to do a proper spike**
 
-![ll](https://www.researchgate.net/publication/351938343/figure/fig1/AS:1080253107712049@1634563819914/A-series-of-action-diagrams-of-volleyball-spiking.jpg)
+<img src="what_does_approach_mean_in_volleyball (3).jpg">
